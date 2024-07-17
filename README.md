@@ -1,0 +1,2 @@
+# Theertha
+My personal repo🙋‍♀️
