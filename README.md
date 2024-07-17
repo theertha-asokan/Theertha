@@ -1,6 +1,6 @@
-> Hey There!, Theertha Asokan
+Hey There!, Theertha Asokan
 
-I am a tech enthusiast
+i am thinkind what to write
 
 
 
